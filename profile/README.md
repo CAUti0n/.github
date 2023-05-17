@@ -4,4 +4,4 @@
 
 <br />
 
-<p align="center"><a href="https://www.notion.so/caution/CAUtion-a4760404740c4a769891ab351298fbc3?pvs=4">⭐CAUtion Notion Link⭐</a></p>
+<p align="center"><a href="https://caution.notion.site/CAUtion-a4760404740c4a769891ab351298fbc3">⭐CAUtion Notion Link⭐</a></p>
