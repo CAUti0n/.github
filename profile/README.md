@@ -4,4 +4,4 @@
 
 <br />
 
-<p align="center"><a href="https://1unaram.notion.site/CAUtion-e608f0a8dda34822be5cfeea9e9e6124">⭐CAUtion Notion Link⭐</a></p>
+<p align="center"><a href="https://www.notion.so/caution/CAUtion-a4760404740c4a769891ab351298fbc3?pvs=4">⭐CAUtion Notion Link⭐</a></p>
